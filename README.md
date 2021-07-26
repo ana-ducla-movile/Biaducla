@@ -5,7 +5,7 @@
 
 👩‍🏭 Electronic engineering student
 <br>
-👩‍💻 Front-end Developer at @justapagamentos
+👩‍💻 Front-end Developer at Even3
 <br>
 😍 Co-founder at Tech Is For Women, a community that fights against the gender disparity in the tech industry.
 
